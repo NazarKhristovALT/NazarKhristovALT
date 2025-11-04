@@ -8,7 +8,15 @@ Like: Bonziworld, Roblox, Pizza Tower, And Game
 
 # Credits
 
-Rover the cool dog
+<del>Rover the cool dog
+
+Donatina
+
+Befaci
+
+Secret Staycation AUTTP
+
+Rip_dead
 
 Luca
 
