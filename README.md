@@ -8,7 +8,6 @@ Like: Bonziworld, Roblox, Pizza Tower, And Game
 
 # Credits
 
-<del>Rover the cool dog
 
 Donatina
 
