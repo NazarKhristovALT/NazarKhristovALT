@@ -22,5 +22,3 @@ Luca
 MTV Dance
 
 **Swag Frenzy**/Jim Megatron
-
-Izhank216
